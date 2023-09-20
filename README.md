@@ -1,2 +1,2 @@
-stuck in codemonkey
-lamer, script kiddy, etc.
+stuck in codemonkey  
+lamer, script kiddy, etc.  
